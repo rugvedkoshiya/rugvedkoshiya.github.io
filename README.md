@@ -1,2 +1,2 @@
 ## Portfolio
-### [rugvedkoshiya.github.io](https://rugvedkoshiya.github.io)
+### [rugvedkoshiya.in](https://rugvedkoshiya.in)
